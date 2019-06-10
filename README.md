@@ -1,8 +1,8 @@
 Comme des bêtes 2 en Streaming
 
-Streaming ►  
+Streaming ►  http://movieplex.xyz/movie/412117-the-secret-life-of-pets-2
 
-Télécharger ►  
+Télécharger ►  http://movieplex.xyz/movie/412117-the-secret-life-of-pets-2
 
 Regarder Comme des bêtes 2 (2019) : film en streaming Vf gratuitement La suite du film d'animation "Comme des bêtes", qui permet de découvrir à nouveau la vie secrète que mènent nos animaux domestiques.
 
